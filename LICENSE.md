@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with high-frequency NFT Rarity Sniper for nft sniper bot | auto-buy & royalty-calculator, the #1 nft sniper bot. Includes auto-buy and royalty-calculator
 
 
 
